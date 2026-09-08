@@ -1,0 +1,1 @@
+# Uygulamali.yapay.zeka.gelistirme.bootcamp.ders-1
